@@ -1,1 +1,1 @@
-https://SeokOneKoes.github.io/rsschool-cv/cv
+https://SeokOneKoes.github.io/rsschool-cv/
