@@ -1,1 +1,1 @@
-# rsschool-cv
+https://SeokOneKoes.github.io/rsschool-cv/cv
